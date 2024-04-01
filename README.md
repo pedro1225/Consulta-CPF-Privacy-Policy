@@ -33,3 +33,5 @@ Estes termos e condições são eficazes a partir de 01/04/2024.
 Entre em Contato Conosco
 
 Se você tiver alguma dúvida ou sugestão sobre os Termos e Condições, não hesite em contatar o Provedor de Serviço em consultacpf.app@gmail.com.
+
+Se você deseja excluir seus dados do app entre em contato atraves dos e-mail consultacpf.app@gmail.com.
